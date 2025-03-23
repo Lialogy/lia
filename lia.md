@@ -173,7 +173,7 @@
 
 | <img src="https://github.com/user-attachments/assets/53892924-ea49-4f37-9f05-ffb3ae992b22" alt="Alt text" width="400"/> |
 |:--:|
-| *1975小学副站长李涯代餐（61岁） <br>（《山海情》白校长，47岁祖峰\*）* |
+| *（if线，1975特赦后）小学副站长李涯代餐（61岁） <br>（《山海情》白校长，47岁祖峰\*）* |
 
 
 
